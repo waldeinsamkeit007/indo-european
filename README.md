@@ -1,2 +1,0 @@
-# indo-european
-Indo-European
